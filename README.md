@@ -1,3 +1,6 @@
+![alt text](http://www.goneprod.fr/img/portfolio/improjection.jpg)
+
+
 Frédéric DEMOOR, artiste musicien et plasticien lyonnais, crée en 2011 le collectif artistique Improjection.
 
 ​Composé initialement d’artistes formés à l’improvisation musciale, au soundpainting et de passionnés de cinéma, Improjection initie avec « Musiques Improvisées sur Films Cultes » une forme originale de ciné-concerts fondée sur la réadaptation des bandes originales de films et l’interprétation libre de la musique live à l’image.
